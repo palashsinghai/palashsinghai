@@ -2,4 +2,4 @@
 - 👀 I’m interested in AI/Machine Learning
 - 🌱 I’m currently learning Salesforcee
 - 💞️ I’m looking to collaborate on Any Technical Project
-- 📫 How to reach me Email me
+- 📫 How to reach ..
